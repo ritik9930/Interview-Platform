@@ -89,4 +89,4 @@ Enjoy exploring and extending this project! Feel free to contribute and suggest 
 
 ## Contact
 
-If you want to contact me you can reach me at 
+If you want to contact me you can reach me at ritikraj9930@gmail.com
